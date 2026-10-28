@@ -1,2 +1,0 @@
-# trabajo
-zeta work
